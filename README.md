@@ -1,4 +1,4 @@
-## Instruction
+## Introduction
 
 - 👋 Hi, I’m @Iluvhans
 - 🌸 I love the digital world
