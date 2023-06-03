@@ -1,10 +1,5 @@
 ## Introduction
 
-- 👋 Hi, I’m @Iluvhans
-- 🌸 I love the digital world
-- 🕶️ I'm interested in digital marketing  
-- 🗑️ My life is full of shit
-
 If you see this you should run away and leave.
 Because there's nothing here.
 Hahaha✌🏻✌🏻✌🏻
